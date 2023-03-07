@@ -1,1 +1,1 @@
-<p align="center"><img src="https://too.lewd.se/2ad95d5be421.gif" alt="butter" height=100"/></p>
+<p align="center"><img src="https://i.imgur.com/iUpI9AN.gif" alt="butter" height=100"/></p>
